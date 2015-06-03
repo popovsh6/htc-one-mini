@@ -1,2 +1,0 @@
-# htc-one-mini
-Aktualni
